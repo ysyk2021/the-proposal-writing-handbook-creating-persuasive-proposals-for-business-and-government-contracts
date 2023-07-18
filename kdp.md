@@ -12,7 +12,6 @@ In addition to practical tips and techniques, "The Proposal Writing Handbook" al
 
 Whether you're new to proposal writing or looking to enhance your existing skills, "The Proposal Writing Handbook" is an essential resource for achieving proposal success. So, let's dive in and discover the secrets to creating persuasive proposals that win business and government contracts!
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
 
 
