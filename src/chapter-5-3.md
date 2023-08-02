@@ -1,4 +1,4 @@
-Chapter: Using Visuals and Graphics to Enhance Proposals
+Using Visuals and Graphics to Enhance Proposals
 ========================================================
 
 In this chapter, we will explore the powerful impact of visuals and graphics in enhancing proposals. Incorporating well-designed visuals can significantly improve the clarity, engagement, and persuasiveness of your proposals, capturing the attention of your audience and effectively conveying complex information.

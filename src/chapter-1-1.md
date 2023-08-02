@@ -1,4 +1,4 @@
-Chapter: Defining Proposal Writing
+Defining Proposal Writing
 ==================================
 
 In this chapter, we will delve into the concept of proposal writing and explore its significance in the context of business and government contracts. Understanding the fundamentals of proposal writing is crucial for creating persuasive proposals that effectively communicate your ideas and increase your chances of success.

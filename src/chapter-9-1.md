@@ -1,4 +1,4 @@
-Chapter: Metrics for Measuring Proposal Effectiveness
+Metrics for Measuring Proposal Effectiveness
 =====================================================
 
 In this chapter, we will explore the importance of measuring proposal effectiveness and discuss key metrics that can be used to evaluate the success of your proposals. By tracking these metrics, you can gain valuable insights into the strengths and weaknesses of your proposal writing process and make data-driven improvements to enhance your chances of winning contracts.
