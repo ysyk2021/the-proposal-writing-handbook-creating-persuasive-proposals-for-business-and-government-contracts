@@ -48,7 +48,7 @@ Back up your claims and assertions with factual evidence. Incorporate case studi
 
 Before submitting your proposal, thoroughly proofread it for any grammatical, typographical, or formatting errors. A well-polished and error-free proposal reflects professionalism and attention to detail. Ensure consistent formatting, clear language, and logical flow throughout the document.
 
-10. Seek Feedback and Continuous Improvement
+10\. Seek Feedback and Continuous Improvement
 --------------------------------------------
 
 After submission, seek feedback from internal stakeholders or trusted individuals who can provide constructive criticism. Analyze the strengths and weaknesses of your proposal to further refine your strategy for future opportunities. Embrace a culture of continuous improvement to increase your chances of success in the long run.
