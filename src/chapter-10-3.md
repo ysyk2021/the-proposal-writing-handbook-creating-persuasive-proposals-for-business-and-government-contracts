@@ -1,5 +1,3 @@
-Future Directions for Research and Practice
-===================================================================
 
 In this book, we've explored the power of proposal writing and techniques for developing persuasive proposals for business and government contracts. As we conclude, let's take a look at future directions for research and practice in proposal writing.
 

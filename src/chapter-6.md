@@ -1,5 +1,3 @@
-Chapter 6: Structuring a Winning Proposal
-=========================================
 
 The structure of a proposal is critical to its success. In this chapter, we will explore techniques for structuring a winning proposal.
 

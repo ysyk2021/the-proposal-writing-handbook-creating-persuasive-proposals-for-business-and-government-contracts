@@ -1,5 +1,3 @@
-Recap of Key Points and Strategies
-==========================================================
 
 In this book, we've explored the key elements of creating persuasive proposals for business and government contracts. To recap, here are the key points and strategies to keep in mind:
 

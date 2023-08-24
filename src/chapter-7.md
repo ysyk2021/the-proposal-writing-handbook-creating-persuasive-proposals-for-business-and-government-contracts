@@ -1,5 +1,3 @@
-Chapter 7: Budgeting and Pricing your Proposal
-==============================================
 
 Budgeting and pricing are critical components of a successful proposal. In this chapter, we will explore techniques for budgeting and pricing your proposal.
 

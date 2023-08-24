@@ -1,5 +1,3 @@
-Writing Clear and Compelling Executive Summaries
-=========================================================
 
 In this chapter, we will explore the importance of writing clear and compelling executive summaries in the context of creating persuasive proposals for business and government contracts. Crafting a well-written executive summary is essential for capturing the attention of decision-makers and providing them with a concise overview of your proposal's key points. By following the techniques outlined in this chapter, you can effectively communicate the value and benefits of your proposal.
 

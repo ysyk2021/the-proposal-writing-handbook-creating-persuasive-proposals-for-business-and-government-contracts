@@ -1,5 +1,3 @@
-Identifying Key Stakeholders and Decision-Makers
-=========================================================
 
 In this chapter, we will explore the process of identifying key stakeholders and decision-makers in the context of writing persuasive proposals for business and government contracts. Understanding and effectively engaging with these individuals or groups is crucial for increasing the chances of proposal success.
 

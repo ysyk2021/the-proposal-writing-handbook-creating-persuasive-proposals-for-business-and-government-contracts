@@ -1,5 +1,3 @@
-Chapter 5: Crafting Persuasive Proposal Content
-===============================================
 
 Crafting persuasive proposal content is critical to winning business through proposals. In this chapter, we'll explore techniques for crafting persuasive proposal content, writing clear and compelling executive summaries, and using visuals and graphics to enhance proposals.
 

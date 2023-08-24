@@ -1,5 +1,3 @@
-Chapter 4: Developing a Winning Proposal Strategy
-=================================================
 
 Developing a winning proposal strategy is critical to success in the proposal writing process. In this chapter, we'll explore techniques for developing a winning proposal strategy, analyzing the RFP or solicitation document, and identifying competitive advantages and key selling points.
 

@@ -1,5 +1,3 @@
-Estimating Costs and Resources
-=======================================
 
 In this chapter, we will explore the crucial process of estimating costs and resources when creating persuasive proposals for business and government contracts. Accurately estimating the financial requirements and necessary resources is essential for demonstrating feasibility, fostering trust, and ensuring the successful implementation of your proposal. By following the techniques outlined in this chapter, you can effectively estimate costs and resources to support your proposal.
 

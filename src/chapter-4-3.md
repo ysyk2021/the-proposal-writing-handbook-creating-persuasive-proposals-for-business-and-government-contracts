@@ -1,5 +1,3 @@
-Identifying Competitive Advantages and Key Selling Points
-============================================================================================================
 
 Identifying your competitive advantages and key selling points is critical to developing a winning proposal strategy. In this chapter, we'll explore how to identify your competitive advantages and key selling points to develop a winning proposal strategy.
 

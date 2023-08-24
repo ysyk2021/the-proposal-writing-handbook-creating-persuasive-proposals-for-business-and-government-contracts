@@ -1,5 +1,3 @@
-Chapter 8: Reviewing, Editing, and Submitting your Proposal
-===========================================================
 
 Reviewing, editing, and submitting your proposal is a critical step in the proposal writing process. In this chapter, we'll explore techniques for reviewing, editing, and submitting your proposal, as well as conducting comprehensive reviews and quality checks, and preparing and submitting proposals timely and accurately.
 

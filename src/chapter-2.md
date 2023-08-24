@@ -1,5 +1,3 @@
-Chapter 2: Overview of Proposal Writing
-=======================================
 
 In this chapter, we'll provide an overview of proposal writing, including the different types of proposals, the benefits and challenges of proposal writing, and techniques for overcoming common proposal writing challenges.
 

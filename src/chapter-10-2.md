@@ -1,5 +1,3 @@
-Final Recommendations for Creating Persuasive Proposals
-===============================================================================
 
 In this book, we've explored the key elements of creating persuasive proposals for business and government contracts. To ensure that your proposals are effective and persuasive, here are some final recommendations to keep in mind:
 

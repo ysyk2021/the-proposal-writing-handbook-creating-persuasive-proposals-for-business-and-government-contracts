@@ -1,5 +1,3 @@
-Chapter 9: Measuring and Evaluating Proposal Effectiveness
-==========================================================
 
 Measuring and evaluating proposal effectiveness is critical for ongoing success in proposal writing. In this chapter, we will explore metrics for measuring proposal effectiveness, evaluating individual and organizational performance, and continuous improvement in proposal writing.
 

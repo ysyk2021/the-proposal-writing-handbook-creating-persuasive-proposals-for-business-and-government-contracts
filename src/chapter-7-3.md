@@ -1,5 +1,3 @@
-Developing Competitive and Realistic Pricing Strategies
-=======================================================================================================
 
 Developing competitive and realistic pricing strategies is critical to winning business through proposals. In this chapter, we'll explore how to budget and price your proposal to develop a competitive and realistic pricing strategy.
 
