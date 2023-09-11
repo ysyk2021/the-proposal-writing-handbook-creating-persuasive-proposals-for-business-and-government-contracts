@@ -1,3 +1,6 @@
+# The Proposal Writing Handbook: Creating Persuasive Proposals for Business and Government Contracts
+
+Book Link: [https://zhengpublishing.com/the-proposal-writing-handbook-creating-persuasive-proposals-for-business-and-government-contracts/](https://zhengpublishing.com/the-proposal-writing-handbook-creating-persuasive-proposals-for-business-and-government-contracts/)
 
 In today's competitive business environment, winning contracts and securing new clients is essential for success. However, with so many businesses and government agencies vying for the same opportunities, it can be challenging to stand out from the crowd and convince decision-makers that your proposal is the best choice.
 
